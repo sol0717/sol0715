@@ -12,3 +12,4 @@
 
 [poki games](https://poki.com/)
 
+[suggestions](https://docs.google.com/document/d/12Frsw81eIXSMr41hCEqQJz5WTDhc-sMG6xLAmzcq3j8/edit?tab=t.0)
