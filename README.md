@@ -27,3 +27,5 @@ LINKS BELOW. PUT SUGGESTIONS IN THE DICORD
 [spodify](https://open.spotify.com/)
 
 [roblox](https://www.roblox.com/)
+
+[mincraft](https://eaglercraft.com/)
